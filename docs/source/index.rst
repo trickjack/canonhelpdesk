@@ -1,9 +1,9 @@
 Canon - Phone Number & Contact Information
 ==============================================
 
-Reach the Canon Printer helpline number **+1-801-878-6858 USA Support** or Canon Customer Service Number **+1-801-878-6858 USA** for your Canon Printer product by group or register your product online. Get instant access to drivers, manuals, videos, community and more resources from Canon U.S.A.
+Reach the Canon Printer helpline number **+1-801-878-6858 USA Support** or Canon Customer Service Number **+1-801-878-6858 USA** for your Canon Printer product by group or register your product online. Get instant access to drivers, manuals, videos, community and more resources from Canon U.S.A. **[Dial +1-801-878-6858 USA]**
 
-`Click Here: Get the Live Canon Printer Support <https://jivo.chat/KlZSRejpBm>`_ **[Dial +1-801-878-6858 USA]**
+`Click Here: Get the Live Canon Printer Support <https://jivo.chat/KlZSRejpBm>`_ 
 
 Canon Printer Support Contact
 ------------------------------
